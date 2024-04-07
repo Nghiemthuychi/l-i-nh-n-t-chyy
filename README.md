@@ -1,1 +1,0 @@
-# l-i-nh-n-t-chyy
